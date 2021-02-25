@@ -2,4 +2,4 @@ Estudante de Sistemas de Informação no ICMC/USP com interesse em desenvolvimen
 
 Email: lucashenbr@gmail.com
 
-linkedIn: https://www.linkedin.com/in/lucas-henrique-braga-martins-726b07129/
+LinkedIn: https://www.linkedin.com/in/lucas-henrique-braga-martins-726b07129/
